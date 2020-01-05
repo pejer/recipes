@@ -1,2 +1,2 @@
-# recipies
-Recepies. You know, for food and stuff.
+# Recipes
+Recepes. You know, for food and stuff.
