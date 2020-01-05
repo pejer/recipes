@@ -1,2 +1,2 @@
 # Recipes
-Recepes. You know, for food and stuff.
+Recipes. You know, for food and stuff.
