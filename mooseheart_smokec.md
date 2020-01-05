@@ -1,4 +1,4 @@
-# Smoking moose heart.
+# Smooked moose heart.
 
 ## Brine
 * About 140 gr salt (110 gr for less salty taste)
