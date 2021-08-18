@@ -16,7 +16,7 @@ Sauce:
 * A pair of tablespoons of olive oil
 
 ## ~4 days before
-There is a lot of kneading needed so using a kitchen assistant or similar is a good idea.
+There is a lot of kneading needed so using a kitchen machine or similar is a good idea.
 
 1. Dissolve the salt in the water
 2. Add about 15% of the flour and stir until dissolved
