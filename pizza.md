@@ -23,7 +23,7 @@ There is a lot of kneading needed so using a kitchen assistant or similar is a g
 3. Add the yeast and stir until dissolved
 4. Add the rest of the flour and knead the dough for 10-15 minutes.
 
-Prepare an airtight container - brush its sides with olive oil, put the dough inside, close the lid and put in the refrigerator at least 48h but 72h or more if your good at planning ahead.
+Prepare an airtight container - brush its sides with olive oil, put the dough inside, close the lid and put in the refrigerator at least 48h but 72h or more if you're good at planning ahead.
 
 ## At Pi(e) day
 4 hours before you're planning on eating them - take the dough out of the refrigerator.  
