@@ -3,17 +3,17 @@ This recipe should be prepared about 3-4 days before you want to enjoy your pizz
 
 ## Ingredients (for 4 pizzas)
 Dough:  
-552g Tipo 00-flour (high protein contents ~ 12.5)
-359g cold water
-1.2g fresh yeast
-16.4g salt (preferably sea salt)
+* 552g Tipo 00-flour (high protein contents ~ 12.5)
+* 359g cold water
+* 1.2g fresh yeast
+* 16.4g salt (preferably sea salt)
 
 Sauce:  
-One can of San Marzano tomatoes 
-2 cloves garlic
-1 bay leaf
-Some fresh basil
-A pair of tablespoons of olive oil
+* One can of San Marzano tomatoes 
+* 2 cloves of garlic
+* 1 bay leaf
+* Some fresh basil
+* A pair of tablespoons of olive oil
 
 ## ~4 days before
 There is a lot of kneading needed so using a kitchen assistant or similar is a good idea.
