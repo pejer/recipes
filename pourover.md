@@ -8,9 +8,7 @@ A few hints & tricks.
 - grind: 32 clicks
 - 250g water
 - 93°C
-
-* 1st pour 50g
-
+- 1st pour 50g
 - 5 pours of 40g each
 
 ## Natural funky coffee recipe
